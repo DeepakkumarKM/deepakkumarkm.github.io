@@ -1,4 +1,3 @@
-![Deepakkumar K M](Assets/Deepakkumar K M - Passport size photo 1.jpg)
 # Customer Service and Operations Analyst
 
 ### About
