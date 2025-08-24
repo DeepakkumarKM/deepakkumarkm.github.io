@@ -1,3 +1,4 @@
+![Deepakkumar K M](/assets/img/bike_study.jpeg)
 # Customer Service and Operations Analyst
 
 ### About
